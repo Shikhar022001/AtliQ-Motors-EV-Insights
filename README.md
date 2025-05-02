@@ -1,1 +1,0 @@
-# AtliQ-Motors-EV-Insights 
